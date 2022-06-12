@@ -1,5 +1,8 @@
 # ***Marharyta Lapatsina***
 ***
+## Location:
+Minsk
+***
 ## Contacts:
 + +375447552234
 + e-mail: lopatina.margarita@gmail.com
